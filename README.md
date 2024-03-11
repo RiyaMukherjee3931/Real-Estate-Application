@@ -1,8 +1,13 @@
 ![Screenshot (273)](https://github.com/RiyaMukherjee3931/Real-Estate-Application/assets/83103896/d914a9b9-003c-42bb-8843-e1c14a9531dd)
+
 ![Screenshot (274)](https://github.com/RiyaMukherjee3931/Real-Estate-Application/assets/83103896/9dd9251d-2e65-42a9-8b4b-9655789d1f55)
+
 ![Screenshot (275)](https://github.com/RiyaMukherjee3931/Real-Estate-Application/assets/83103896/eaec38ed-ba7a-478e-aef7-7b24b896adea)
+
 ![Screenshot (276)](https://github.com/RiyaMukherjee3931/Real-Estate-Application/assets/83103896/25a0ef86-bd6d-47c7-a137-eae04d78956c)
+
 ![Screenshot (277)](https://github.com/RiyaMukherjee3931/Real-Estate-Application/assets/83103896/2fc25c45-6b6a-421f-af92-d9d988d197d6)
+
 ![Screenshot (278)](https://github.com/RiyaMukherjee3931/Real-Estate-Application/assets/83103896/6d775c9b-42c5-4e10-9803-a527d90bf98c)
 
 
